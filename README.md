@@ -1,5 +1,5 @@
 # Fortnite Dumper Offsets
 
-Made by Kiss Web#9393 
+Made by _$#9393 
 
 Enjoy 😀
